@@ -1,0 +1,2 @@
+# Sardor-Yo-ldoshev
+Optimizatsiya
